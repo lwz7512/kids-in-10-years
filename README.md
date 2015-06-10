@@ -75,13 +75,13 @@
 
 ### 理论篇
 
-* [怎样培养孩子的独立性](https://www.evernote.com/shard/s139/sh/194a0ca1-e7e4-4e2b-adf7-75d34b7bb815/21376515a87b52bfe08cd78a2feab744), [download, 2.1M](images/2015-06-11_00-45-05.png)
+* [怎样培养孩子的独立性](https://www.evernote.com/shard/s139/sh/194a0ca1-e7e4-4e2b-adf7-75d34b7bb815/21376515a87b52bfe08cd78a2feab744), [:milky_way:](images/2015-06-11_00-45-05.png)2.1M
 
 
 ### 阅读优秀绘本
 
-* [孩子成年路上怎么能不读这些书？（3-6岁）](https://www.evernote.com/shard/s139/sh/034b9e67-b64f-4b72-a570-3f19c73c3d20/c390782227dba0ade18effd27a4aa524), [download, 25.5M](images/2015-06-11_00-48-19.png)
-* [如何让孩子从亲子阅读到半自动阅读](https://www.evernote.com/shard/s139/sh/a434c34e-1845-4bff-b1ee-1573a2a51c6a/943b8701b5b0305607097882e6ce9670), [download, 5.6M](images/2015-06-11_00-50-31.png)
+* [孩子成年路上怎么能不读这些书？（3-6岁）](https://www.evernote.com/shard/s139/sh/034b9e67-b64f-4b72-a570-3f19c73c3d20/c390782227dba0ade18effd27a4aa524), [:milky_way:](images/2015-06-11_00-48-19.png)25.5M
+* [如何让孩子从亲子阅读到半自动阅读](https://www.evernote.com/shard/s139/sh/a434c34e-1845-4bff-b1ee-1573a2a51c6a/943b8701b5b0305607097882e6ce9670), [:milky_way:](images/2015-06-11_00-50-31.png)5.6M
 
 ### 音乐的影响
 
