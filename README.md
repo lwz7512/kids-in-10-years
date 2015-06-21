@@ -101,7 +101,7 @@
 
 ### 旅行的意义
 
-* [旅行的意义](https://www.evernote.com/shard/s139/sh/809d9545-b089-492a-b424-582214e09703/9af312f8aa3e049be8626da00d38db10) [长图片](images/2015-06-21_20-26-40.png)2.9M, [pdf](pdfs/meaning-of-travel-to-kids.pdf)3.7M
+* [旅行的意义](https://www.evernote.com/shard/s139/sh/809d9545-b089-492a-b424-582214e09703/9af312f8aa3e049be8626da00d38db10), [长图片](images/2015-06-21_20-26-40.png)2.9M, [pdf](pdfs/meaning-of-travel-to-kids.pdf)3.7M
 
 
 
